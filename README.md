@@ -3,4 +3,4 @@ My first repository
 
 Hi!
 
-Marie here. I like to reality tv, drinking, and eating. I want to become a freelancer for a living.
+Marie here. I like reality tv, food, and drinks. I want to become a freelancer for a living.
